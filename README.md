@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MayPeach
 - 👀 I’m interested in: Personal Growth, and Learning new skills
 - 🌱 I’m currently learning: Coding, CEO, and Data Analysis
-- 💞️ I have a collaboration of: personal growth & SEO Knowledge writings
+- 💞️ I have a collaboration writing of: personal growth & SEO Knowledge
 - 😄 Pronouns: She/herhers
 - ⚡ Fun fact: I am too young to be so mature, and too old to keep messing around... 
 
